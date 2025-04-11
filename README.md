@@ -1,1 +1,0 @@
-# electrika-2k25
